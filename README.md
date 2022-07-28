@@ -1,1 +1,1 @@
-Computer science student in France.
+Computer science student from France.
